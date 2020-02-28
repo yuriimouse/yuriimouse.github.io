@@ -1,1 +1,0 @@
-# yuriimouse.github.io
